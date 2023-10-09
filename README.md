@@ -9,4 +9,6 @@ Why did the chicken cross the road? side. To GIT to the the other side!
 
 Why don't programmers like nature? It has too many bugs!
 
-hehe
+Hello - solon
+
+hehe - nutsiko
